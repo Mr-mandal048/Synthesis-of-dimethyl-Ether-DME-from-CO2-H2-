@@ -1,1 +1,1 @@
-# Synthesis-of-dimethyl-Ether-DME-from-CO2-H2-
+# Synthesis-of-dimethyl-Ether(DME)-from-CO2 & H2
